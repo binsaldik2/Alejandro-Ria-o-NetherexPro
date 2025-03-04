@@ -1,4 +1,4 @@
-# Alejandro-Ria-o-NetherexPro<h2>Los fans abogan por la liberación de Alejandro Riaño tras su polémica entrevista</h2>
+<h2>Los fans abogan por la liberación de Alejandro Riaño tras su polémica entrevista</h2>
 <!-- /wp:heading -->
 <p>Cientos de seguidores se han movilizado para defender a Alejandro Riaño tras un escandaloso incidente durante la emisión en directo de un popular programa.</p>
 <!-- /wp:paragraph -->
